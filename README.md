@@ -1,2 +1,2 @@
 # conflict
-This is an edit
+I do not like any candy.
